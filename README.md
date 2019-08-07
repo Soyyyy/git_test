@@ -1,0 +1,1 @@
+LOOOOOL Here you are coding like an idiot. Good luck you ape and hope you actually manage to complete this. You can do it.
